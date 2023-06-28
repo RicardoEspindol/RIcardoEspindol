@@ -1,6 +1,5 @@
 
-# 💫 About Me:
-⚡ Hello friend, this is me!
+# ⚡ Hello friend, this is me!
 
 
 ## 🌐 Socials:
